@@ -1,1 +1,0 @@
-# isekai-rift-legend
